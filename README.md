@@ -10,7 +10,7 @@
 - 📫 Contact me: crisbed321@gmail.com
 - 🎵 Love Salsa & Latin Music, Films 🎞️
 - ⚡ Love Memes, check my [twitter]
-- 🤽 Waterpolo player & 🚲 Amateur Cyclist.
+- 🤽 Waterpolo player & 🚲  Amateur Cyclist.
 
 ### Connect with me:
 
