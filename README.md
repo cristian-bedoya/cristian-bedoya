@@ -2,14 +2,15 @@
 
   Software Developer(Full-Stack) 👨‍💻. 💡
 
-- 🌱 Currently learning C, Python and Go
-- 💼 Looking for a job as a Junior Developer in Tech Industry or Startup
-- 🥅 2021 Goals: Get an immersive development experience and knowledgmentes
+- 🌱 Currently learning C, Python, Javascript, and React.
+- 💼 Looking for a job as a Developer in Tech Industry or Startup
+- 🥅 2021 Goals: Get an immersive development experience and knowledgde
 - 👯 Looking to collaborate on learning new languages
 - 💬 Ask me anything, maybe I can help you
 - 📫 Contact me: crisbed321@gmail.com
 - 🎵 Love Salsa & Latin Music, Films 🎞️
 - ⚡ Love Memes, check my [twitter]
+- 🤽 Waterpolo player & 🚲 Amateur Cyclist.
 
 ### Connect with me:
 
